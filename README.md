@@ -58,3 +58,7 @@ https://youtu.be/P6ZOyJ3MR1o
   
 
  *Open to internship opportunities*
+
+ ## 📄 My CV
+
+👉 [Download My CV](Reotshepile_Stock_CV.pdf)
