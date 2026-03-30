@@ -50,6 +50,11 @@ EduConnect is a student-focused platform designed to help university students co
 #### Contact Me
 230875807@mycput.ac.za  
 082 726 5108 / 072 629 7345
+
+## 🎤 Mock Interview
+
+Watch my mock interview here:  
+https://youtu.be/P6ZOyJ3MR1o
   
 
-⭐ *Open to internship opportunities*
+ *Open to internship opportunities*
